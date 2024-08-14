@@ -9,4 +9,5 @@ Death to Khamenei Death to Islam Death to the Islamic Republic of Iran
 I am a Jew, you should also become a Jew, Islam has told you many lies.
 <img src="https://s8.uupload.ir/files/img_20240813_181222_423_uu81.jpg" width="300" height="300">
 <h2>⭕کیر تو قبر هنیه درود بر اسرائیل زنده باد اسرائیل</h2>
+<h2>بنام خدا بنیامین کونک هستم </h2>
 
